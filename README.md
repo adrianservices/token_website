@@ -14,4 +14,4 @@
 
 ✅ Professional Designs
 
-‼️ DM for more ‼️ Telegram: https://t.me/adrianservices ✅
+DM me from Telegram: https://t.me/adrianservices if you are interested.🤝
